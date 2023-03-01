@@ -1,2 +1,0 @@
-# tugaykrb
-Tugay Karabıyık 
